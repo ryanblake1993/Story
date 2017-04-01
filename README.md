@@ -6,10 +6,15 @@
  boy whom appears to have ~~excellent~~ potential in life. But is not motivated.
  ### *Added Chapter 2*
  ## Chapter 2, Is he Back?
- After becoming a **Yu-Gi-Oh master**, Dylan faces his next biggest test.
+ After becoming a **"Yu-Gi-Oh master"**, Dylan faces his next biggest test.
  School.
  ### *Added Chapter 3*
  ## Chapter 3, College
  Dylan has now Finished secondary School and is heading to college.
  
+ ### *Added Alternate_Ending Chapter 3*
+  ## Chapter 3, No Distractions 
+ This Chapter is about what life would be like for Dylan
+ Without the Distractions of ~~**"Yu-Gi-Oh"**~~.
+  
  
